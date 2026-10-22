@@ -1,1 +1,1 @@
-# cynooooooo6.githud.io
+# cynooooooo6-glitch.github.io
